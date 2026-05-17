@@ -1,5 +1,5 @@
 ㅤ<p align="center">
-<img align="middle" src="https://file.garden/agnAEGD_FSxRuirH/ohewotgsd.png" alt="image" width="500" height="200" />
+<img align="middle" src="https://file.garden/agnAEGD_FSxRuirH/photo_2026-05-17_17-23-52.jpg" alt="image" width="1000" />
 </p>
 ###      •  (∪.∪ )...zzz
 
