@@ -16,7 +16,7 @@
 <p align="center"> 
   <p align="center">
 <a 
-<sub>${\text{\color{#f7f0d6}•ㅤAlways free to \color{#cdf58a}int \color{#80c27b}nd \color{#a8c841}c+h  \color{#ff9781}(*￣3￣)╭ }}$ <br>
+<sub>${\text{\color{#f7f0d6}• Always free to \color{#cdf58a}int \color{#80c27b}nd \color{#a8c841}c+h  \color{#ff9781}(*￣3￣)╭ }}$ <br>
   
 <p align="center"> 
   <p align="center">
