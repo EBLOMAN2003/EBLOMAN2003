@@ -8,7 +8,7 @@
 <p align="center"> 
   <p align="center">
 <a 
-<sub>${\text{\color{#edf385} ۶ৎ Codeine \color{#fe9882}(Cody) / \color{#cbe2c5}Shapipa  \color{#fd6d53}♡}}$ <br>
+<sub>${\text{\color{#edf385} ۶ৎ Codeine \color{#a3a454}(Cody) / \color{#cbe2c5}Shapipa  \color{#fd6d53}♡}}$ <br>
 <p align="center"> 
   <p align="center">
 <a 
@@ -36,4 +36,4 @@
 <a 
 
   <sub>${\text{\color{#b6c568}When you spare a make-up smile}}$ <br>
-   <sub>${\text{\color{#b6c568}I'm instantly \color{#7c923d}your biggest fan}}$
+   <sub>${\text{\color{#b6c568}I'm instantly \color{#7c923d}your biggest fan ⟢    ‍‍⸝⸝}}$
