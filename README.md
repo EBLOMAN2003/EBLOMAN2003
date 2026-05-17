@@ -16,12 +16,12 @@
 <p align="center"> 
   <p align="center">
 <a 
-<sub>${\text{\color{#f7f0d6}•ㅤAlways free to \color{#7c9037}int \color{#f7f0d6}nd \color{#a8c841}c+h  \color{#ff9781}(*￣3￣)╭ }}$ <br>
+<sub>${\text{\color{#f7f0d6}•ㅤAlways free to \color{#cdf58a}int \color{#80c27b}nd \color{#a8c841}c+h  \color{#ff9781}(*￣3￣)╭ }}$ <br>
   
 <p align="center"> 
   <p align="center">
 <a 
-<sub>${\text{\color{#f7f0d6} • multi fandom \color{#ff9781} nd \color{#aab45e} multi shipper  𝜗℘ }}$ <br>
+<sub>${\text{\color{#bdd283} • multi fandom \color{#80c27b} nd \color{#bdd283} multi shipper  𝜗℘ }}$ <br>
 
 <p align="center"> 
   <p align="center">
@@ -31,4 +31,9 @@
 ㅤㅤㅤ<img align="middle" src="https://file.garden/agnAEGD_FSxRuirH/image_2026-05-17_16-05-16.png" alt="image" width="1000" height="auto" />
 </p>
 
+<p align="center"> 
+  <p align="center">
+<a 
 
+  <sub>${\text{\color{#b6c568}When you spare a make-up smile}}$ <br>
+   <sub>${\text{\color{#b6c568}I'm instantly \color{#7c923d}your biggest fan}}$
