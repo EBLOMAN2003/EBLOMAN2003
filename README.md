@@ -21,7 +21,7 @@
 <p align="center"> 
   <p align="center">
 <a 
-<sub>${\text{\color{#bdd283} • multi fandom \color{#80c27b} nd \color{#bdd283} multi shipper  𝜗℘ }}$ <br>
+<sub>${\text{\color{#f7f0d6} • multi fandom \color{#80c27b} nd \color{#f7f0d6} multi shipper  𝜗℘ }}$ <br>
 
 <p align="center"> 
   <p align="center">
