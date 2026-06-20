@@ -8,7 +8,7 @@
 <p align="center"> 
   <p align="center">
 <a 
-<sub>${\text{\color{#edf385} ۶ৎ Codeine \color{#90c852}(Cody) / \color{#edf385}Shapipa  \color{#fd6d53}♡}}$ <br>
+<sub>${\text{\color{#fd6d53} ۶ৎ \color{#90c852}Codeine \color{#edf385}(Cody)  \color{#fd6d53}♡}}$ <br>
 <p align="center"> 
   <p align="center">
 <a 
