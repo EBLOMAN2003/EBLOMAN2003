@@ -17,6 +17,10 @@
   <p align="center">
 <a 
 <sub>${\text{\color{#f7f0d6}• Always free to \color{#cdf58a}int \color{#f7f0d6}and \color{#a8c841}c+h  \color{#ff9781}(*￣3￣)╭ }}$ <br>
+  <p align="center"> 
+  <p align="center">
+<a 
+<sub>${\text{\color{#e1e0c2}• And I'm \color{#a8c841}always \color{#e1e0c2}glad to meet new people  \color{#cdf58a}໑ׄ 𓂃 }}$ <br>
   
 <p align="center"> 
   <p align="center">
