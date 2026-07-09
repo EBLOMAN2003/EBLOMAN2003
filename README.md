@@ -1,43 +1,44 @@
 ㅤ<p align="center">
-<img align="middle" src="https://file.garden/agnAEGD_FSxRuirH/photo_2026-05-17_17-32-32.jpg" alt="image" width="1000" />
+<img width="1000" height="47" alt="image" src="https://github.com/user-attachments/assets/636bf980-b4b0-4ae1-aa51-68c9b6d5d411" />
+
 </p>
 
-###      •  (∪.∪ )...zzz
+###      •  O(∩_∩)O  ₊
 
 
 <p align="center"> 
   <p align="center">
 <a 
-<sub>${\text{\color{#fd6d53} ۶ৎ \color{#90c852}Codeine \color{#edf385}(Cody)  \color{#fd6d53}♡}}$ <br>
+<sub>${\text{\color{#ffeca5} ۶ৎ \color{#ffc630}Codeine \color{#ffdd71}(Cody) \color{#eab336}⌗     °}}$ <br>
 <p align="center"> 
   <p align="center">
 <a 
-<sub>${\text{\color{#e1e0c2}•  17 y.oㅤ ۶ৎ  }}$ <br>
+<sub>${\text{\color{#fee686}•  17 y.oㅤ\color{#4064ff} ۶ৎ  }}$ <br>
 <p align="center"> 
   <p align="center">
 <a 
-<sub>${\text{\color{#f7f0d6}• Always free to \color{#cdf58a}int \color{#f7f0d6}and \color{#a8c841}c+h  \color{#ff9781}(*￣3￣)╭ }}$ <br>
+<sub>${\text{\color{#ffeca5}• Always free to \color{#f2a930}int \color{#ffeca5}and \color{#ffbe52}c+h  \color{#f5bd60}(*￣3￣)╭ }}$ <br>
   <p align="center"> 
   <p align="center">
 <a 
-<sub>${\text{\color{#e1e0c2}• And I'm \color{#a8c841}always \color{#e1e0c2}glad to meet new people  \color{#cdf58a}໑ׄ 𓂃 }}$ <br>
+<sub>${\text{\color{#ffeca5}• And I'm \color{#efb350}always \color{#ffeca5}glad to meet new people  \color{#4064ff}໑ׄ 𓂃 }}$ <br>
   
 <p align="center"> 
   <p align="center">
 <a 
-<sub>${\text{\color{#f7f0d6} • multi fandom \color{#f7f0d6} and \color{#f7f0d6} multi shipper  𝜗℘ }}$ <br>
+<sub>${\text{\color{#ffeca5} • multi fandom \color{#efb350} and \color{#ffeca5} multi shipper  𝜗℘ }}$ <br>
 
 <p align="center"> 
   <p align="center">
 <a 
-  <sub>${\text{\color{#6b7f42}੭୧    .♪      ㅉ    \color{#efe576}  。 ‟   ┄   \color{#76855a} ✦✧    . }}$ <br>
+  <sub>${\text{\color{#334fc7}੭୧  ( !? )     ㅉ    \color{#4064ff}  。 ‟   ┄   \color{#4867ea} ﹢     ୭୭  . }}$ <br>
 <p align="center">
-ㅤㅤㅤ<img align="middle" src="https://file.garden/agnAEGD_FSxRuirH/image_2026-05-17_16-05-16.png" alt="image" width="1000" height="auto" />
+ㅤㅤㅤ<img align="middle" src="https://file.garden/agnAEGD_FSxRuirH/woahwhat" alt="image"  width="300" />
 </p>
 
 <p align="center"> 
   <p align="center">
 <a 
 
-  <sub>${\text{\color{#b6c568}When you spare a make-up smile}}$ <br>
-   <sub>${\text{\color{#b6c568}I'm instantly \color{#7c923d}your biggest fan ⟢    ‍‍⸝⸝}}$
+  <sub>${\text{\color{#ffe368}аднажди в красти крапс }}$ <br>
+   
